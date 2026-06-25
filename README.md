@@ -1,4 +1,4 @@
-# Building-a-PC
+# Building a Gaming PC
 My own journey to building a PC
 I have built my own PC! Follow my journey below via the goolge drive link. Due to the write up having many images, the file will need to be downloaded.
 
